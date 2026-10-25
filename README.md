@@ -213,4 +213,4 @@ The Black Heart is offered as a complete free version with all features and upda
 Take your fighting skills to the next level — download **The Black Heart free** today and join the battle!
 
 ---
-**Last updated:** 2026-10-25 17:57:19 UTC
+**Last updated:** 2026-10-25 20:18:38 UTC
